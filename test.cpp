@@ -1,1 +1,1 @@
-10lama
+10lamal
